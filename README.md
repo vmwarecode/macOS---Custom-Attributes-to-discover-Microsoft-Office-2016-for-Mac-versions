@@ -1,1 +1,0 @@
-# macOS---Custom-Attributes-to-discover-Microsoft-Office-2016-for-Mac-versions
